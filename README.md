@@ -1,12 +1,12 @@
 # FOSS_Trainee
-Hi peers!
+Hi folks!
 ## Introduction
 I am Ahwan Sarkar, a student of IIIT Allahabad.
-## Incident abt college that I stumbled upon
+### Incident abt college that I stumbled upon
 This goes like-
 One day all my friends planned to go Civil Lines. But I said NO from the beginning. I was just roaming in campus. One of my friend came and told that plan is cancelled. So they now planned to do some bullshit again in my room. IT WAS A TRAP. They didn't even let me wear my shoes and carried me to auto :(. They brought shoes later, but it still IT WAS AGAINST MY WILL..... I WANT JUSTICE XD.
-## Funny Incident I wanna tell
-The incidents we do in hostel can't be told in public XD (things on should not do in hostel type shit). My insta feed is not feeding since september :( . So I have nothing to tell as a joke. But I can tell two incidents again -
+### Funny Incident I wanna tell
+The incidents we do in hostel can't be told in public XD (things one should not do in hostel type shit). My insta feed is not feeding since september :( . So I have nothing to tell as a joke. But I can tell two incidents again -
 1. I have admitted to this college in August and made some really good friends. We did many bullshit things till the date. One of the funny incident that I can recall goes as -
 We are a group of 8 friends. One guy was sleeping in the next room. We all went to his room and brought his bed alongwith with him sleeping to my room. In the meanwhile he woke up and shouted like he saw a ghost or something like that. Then we all slept in my room :D
 
